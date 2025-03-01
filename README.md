@@ -1,3 +1,8 @@
+
+*(block all mapping business)*⬇️
+*(shutdown npm)**
+(all photo and video back safe no leak)*⬇️
+
 <header>
 
 <!--
